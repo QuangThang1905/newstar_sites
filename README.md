@@ -1,1 +1,0 @@
-# newstar_sites
